@@ -7,5 +7,6 @@ I created a new mascot, logo, social media templates, banners, stickers, keychai
 
 All artworks drawn in Medibang Paint Pro without the use of generative AI. Adobe Illustrator used for vector artworks.
 
+Official Instagram: https://www.instagram.com/akumakon?igsh=ajZyYTVsczg2ZjN1
 
 <img width="2000" height="1000" alt="chii laying" src="https://github.com/user-attachments/assets/ff2657d0-8b1d-4136-ae27-390bd8cf39b7" />
